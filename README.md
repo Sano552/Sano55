@@ -1,2 +1,24 @@
-# Sano55
-my profile repo : )
+
+# Hi I'm Sasha
+# Kto ia:
+* kto-to
+* molodez
+### PROGRAM languages :
+1. C++
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
